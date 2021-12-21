@@ -1,2 +1,2 @@
-# Mitzvah-of-Chinuch
-Mitzvah-of-Chinuch
+# Chinuch-Habanim
+Chinuch Habanim
